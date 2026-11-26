@@ -39,6 +39,6 @@
   <summary><code>info about me</code></summary>
   <br/>
   <sub>
-    <b>Kerim/Me> –:</b> Im Asexual+Bisexual, going by He/Him prns. Sometimes Shy as hell but friendly&lt;3 &amp; Usually with MY sweet Lili LOVEE UUU MY ANGEL<br/> <img src="https://pixels.crd.co/assets/images/gallery12/9efc8b3c.gif?v=29416114" height="14" alt="pixel 1" />
+    <b>Kerim/Me> –:</b> Im Asexual+Aromantic, going by He/Him prns. Sometimes Shy as hell but friendly&lt;3 &amp; Usually with MY sweet Lili LOVEE UUU MY ANGEL<br/> <img src="https://pixels.crd.co/assets/images/gallery12/9efc8b3c.gif?v=29416114" height="14" alt="pixel 1" />
     <b>READ.k:</b> Please be respectful and Don't interact with me if youre problematic or hate on my closest people. Im very harsh when it comes to drama/fights so avoid it around me. Exes or ex friends of my friends dni respectfully, i got nothing agaisnt u but its a boundary i set myself.<br/>
     <b>Details:</b> Most of the time im with Lili, yes she's my second half no we won't ever be apart. Please don't use terms as ''boyfriend, my love, husband, angel'' in general ones that involve things used for couples(even if its platonic avoid it, i only allow a certain person to use such nicknames which is Euphoria/Lili otherwise ill easily cut u off/block)
